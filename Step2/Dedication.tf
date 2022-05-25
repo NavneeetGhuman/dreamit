@@ -1,0 +1,1 @@
+Study with full dedication and keep practicing
